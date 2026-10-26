@@ -1,0 +1,1 @@
+Beginning Quant Trading Strategy 
